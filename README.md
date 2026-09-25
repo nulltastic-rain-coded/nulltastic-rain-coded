@@ -2,7 +2,7 @@
 
 <P align="center"> 🕶️
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=+Relief&duration=3000&pause=300&color=323232&center=true&width=435&lines=Can't+wait+4+you+2+shut+me+up!;and+make+me+hip+like+BAD-ASS!!!;Can't+wait+4+u+2+shut+me+up..;SHUT+IT+UP.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=+Relief&duration=2500&pause=300&color=323232&center=true&width=435&lines=Can't+wait+4+you+2+shut+me+up!;and+make+me+hip+like+BAD-ASS!!!;Can't+wait+4+u+2+shut+me+up..;SHUT+IT+UP!)](https://git.io/typing-svg)
 
 I don't support MSI btw
 
