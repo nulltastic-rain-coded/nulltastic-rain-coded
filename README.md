@@ -12,7 +12,8 @@ $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
 
-<P align="center"> Info on Pronouns maybe??? idk 
+　　 　　　　more info in 
+[here](https://pronouns.cc/@nullity.err) maybe
 
 $${\color{#0D1017}\text{space}}$$
 
@@ -24,13 +25,9 @@ $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
 
+<P align="center"> searching for more gamervirus art made by other ppl : eyes :
+
+$${\color{#0D1017}\text{space}}$$
+
 <P align="center">
-𝘯𝘶𝘭𝘭/𝘯𝘦𝘪𝘭 𝘺𝘢𝘰𝘪 𝘢𝘳𝘵 𝘮𝘢𝘥𝘦 𝘧𝘳𝘰𝘮 𝘰𝘵𝘩𝘦𝘳 𝘱𝘱𝘭 𝘸𝘩𝘦𝘯 :𝘦𝘺𝘦𝘴:
-
-$${\color{#0D1017}\text{space}}$$
-
-$${\color{#0D1017}\text{space}}$$
-
-$${\color{#0D1017}\text{space}}$$
-
 <img width="400" height="300" alt="2718" src="https://github.com/user-attachments/assets/8a087f60-62b6-4398-b753-60e9b134661f" />
